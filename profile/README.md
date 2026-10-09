@@ -39,10 +39,6 @@ Nosso objetivo é oferecer soluções práticas e eficientes para pessoas e empr
 
 <div align="center">
 
-**CTRL INFORMÁTICA**
 
-*Tecnologia que conecta soluções.*
-
-🔵 ⚪ 🟡
 
 </div>
